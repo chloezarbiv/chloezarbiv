@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @chloezarbiv and im just looking forward meeting friend on the gaming indusreuy.
-- 👀 I’m interested in talking about code, gaming and more
-- 🌱 I’m current11ly learning how to connect with the right people
+- 👋 Hi, I’m @chloezarbiv and I'm just looking forward to meeting friends in the gaming industry.
+- 👀 I’m interested in talking about code, gaming, and more
+- 🌱 I’m currently learning how to connect with the right people
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 
